@@ -1,1 +1,1 @@
-# AbdullaAziz-0
+### Hi I am Azizbek Madaminov <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExY2gybXVuaHl5ZnlpdHlnMzZxNjFzbjE3b3poYTQ1NWtmYjY0Z2ptZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/dzaUX7CAG0Ihi/giphy.gif" >
